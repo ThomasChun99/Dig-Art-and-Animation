@@ -1,0 +1,1 @@
+Art is a way for people to express their emotions or anything really through paint, music, sculptures, and many more. Art has a major influence on many people all around the world ranging form entertainment to religious reasons. I believe art is a way for people to display their creativity however they want. 
