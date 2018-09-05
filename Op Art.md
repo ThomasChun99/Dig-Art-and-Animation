@@ -8,3 +8,4 @@ https://www.thoughtco.com/what-is-op-art-182388 I chose this link because it giv
 
 https://www.artsy.net/article/the-art-genome-project-the-neuroscience-of-op-art I chose this link because it explains the science behind Op Art and how the artisits use certain colors or shapes to create illusions.
 
+Josef Albers was born March 19, 1888
