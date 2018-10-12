@@ -13,7 +13,7 @@ Marina Apollino. (1940- Present) Born in Trieste.
 I like how she used circles to create artworks that look like really cool illusions. 
 
 Michael Kidner. (1917 - 2009) Born in Northamptonshire.
-His use of 
+His use of bright colors and weird shapes were very intresting to me.
 
 Nadir Afonso. (1920 - 2013) Born in Chaves, Portugal.
-I think how Afonso 
+I think how Afonso uses bright colors and different shapes to create unique looking buildings and architecture.
